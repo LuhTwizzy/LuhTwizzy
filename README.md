@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LuhTwizzy
 - 👀 I’m interested in ... big black balls
-- 🌱 I’m currently learning ... how to get code 
+- 🌱 I’m currently learning ... how to paste 
 - 💞️ I’m looking to collaborate on ... nothin
 - 📫 How to reach me ... Luh#7007
 
